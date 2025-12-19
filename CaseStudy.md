@@ -1,0 +1,6 @@
+McKinsey & Company partnered with Goodwill Industries International and its network of 153 local nonprofit affiliates to strengthen career pathways for millions of Americans, particularly early-career job seekers and individuals facing barriers to employment. 
+Traditional workforce development programs often consist of multiple optional services, leading to complexity and inconsistent outcomes. 
+To address this, McKinsey worked with Goodwill to streamline the Opportunity Accelerator® framework, reducing over 35 optional services to a focused set of best-practice elements. 
+These included simplified intake and assessment processes, mentorship-driven career coaching, and structured alumni engagement. Participants were connected to jobs with Goodwill’s employer partners and received ongoing mentorship and support. 
+The partnership also created a roadmap for expanding Opportunity Accelerator’s reach beyond its current footprint, aiming to foster long-term career development, economic empowerment, and sustained job retention across large communities. 
+This initiative helps create impactful pathways for individuals from all backgrounds to access meaningful employment and thrive in the modern economy.
